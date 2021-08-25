@@ -1,4 +1,6 @@
-### Hi there 👋
+### Hi there 👋 
+THanks for checking me out, I haven't thought about this yet, but it's gonna be cool when i do.
+
 
 <!--
 **mike-adonis/mike-adonis** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
