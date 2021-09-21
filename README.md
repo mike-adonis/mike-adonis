@@ -1,5 +1,5 @@
 ### Hi there 👋 
-THanks for checking me out, I haven't thought about this yet, but it's gonna be cool when i do.
+THanks for checking me out, I haven't thought about what to put here yet, but it's gonna be cool when i do, please email me at madonis150@gmail.com if you need to talk to me.
 
 
 <!--
